@@ -1,1 +1,2 @@
-# update these things
+# now 
+what should i do ?
